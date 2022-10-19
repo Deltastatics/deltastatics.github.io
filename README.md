@@ -1,1 +1,0 @@
-# deltastatics.github.io
